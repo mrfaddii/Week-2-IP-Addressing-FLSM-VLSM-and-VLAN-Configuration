@@ -89,7 +89,7 @@ By completing this task, the following skills were developed:
 
 ## 🔗 Submission Links
 
-- **LinkedIn Post:** [Add link here]
+- **LinkedIn Post:** https://www.linkedin.com/posts/qazi-muhammad-fahad-a59ab6415_week-2-ugcPost-7481742302697250817-OTRS/?utm_source=share&utm_medium=member_desktop&rcm=ACoAAGm0MWUBaXBVY-JUyCvHI6QMqh9YVTbldKE
 
 ---
 
